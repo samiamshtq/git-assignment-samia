@@ -1,0 +1,2 @@
+samia
+I have a creative side; I love getting my hands dirty with clay to make unique pieces, and I also find escape in reading engaging novels. Professionally, I am pursuing my passion for technology and security as a cybersecurity student, constantly learning about new threats and defenses in the digital world.
